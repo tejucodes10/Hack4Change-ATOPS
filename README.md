@@ -25,5 +25,5 @@ https://github.com/adithya-vedhamani/ATops/assets/73640313/3d2d4574-0cdc-493b-a1
 
 ## Other Contributor
 
-Tejaswini Uma Sudhir
+Adithya Vedhamani
 
